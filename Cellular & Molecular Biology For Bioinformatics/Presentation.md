@@ -6,3 +6,6 @@
 **Chapter 4: Translation**
 
 ![Image](https://github.com/user-attachments/assets/58563cd6-a09f-4e52-ad5f-568dfeeaa66e)
+
+**Reflection :**
+Through the presentation, I have a better understanding of transcribing and translating what I have learned. Not only that, mind mapping also helps me improve my memory and simplify complex concepts.
